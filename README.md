@@ -23,4 +23,4 @@ Last night I dreamt about eating in these restaurant:
 ### Contact
 
 The best way to get in touch with me is [on Facebook](https://www.facebook.com/lidan.huang.5)
-![This is a picture link](https://www.yahoo.com/lifestyle/story-behind-day-dead-190036825.html)
+![This is a picture link](https://www.tribdem.com/news/picture-this-bird-shot-captures-photo-contest/article_a2abf2e0-3ba4-11e8-9bb1-db22bf6445d7.html).
